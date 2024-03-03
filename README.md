@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @60ur4b-bi5w45
+- 👀 I’m interested in web-dev and teaching
+- 🌱 I’m currently learning CTF
+- 📫 How to reach me : all my social media links are added on my profile
+- ⚡ Fun fact: I have a great interest in film making and story telling
